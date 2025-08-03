@@ -1,2 +1,0 @@
-# ifinkelstein.github.io
-Blog
